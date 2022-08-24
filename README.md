@@ -34,5 +34,5 @@
 Todos os tutoriais de edição e customização das Mods acima, estão nesse canal do telegram: https://t.me/ajudamodconecta4g
 
 
-# 😎👇 CANAL JEAN ROCHA
+# 👇😎 CANAL JEAN ROCHA
 https://t.me/CanalJeanRocha
